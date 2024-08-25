@@ -16,5 +16,7 @@ A summer treat beloved around the world, this page includes the step by step pro
 ### Of Course, There's Other Ways. Below Are A Few Different Recipes:
 * [https://tastesbetterfromscratch.com/fresh-squeezed-lemonade/](https://tastesbetterfromscratch.com/fresh-squeezed-lemonade/)
 * [https://www.simplyrecipes.com/recipes/perfect_lemonade/](https://www.simplyrecipes.com/recipes/perfect_lemonade/)
+
 Or you can purchase your lemonade from the store
+
 ![intro-1656101104](https://github.com/user-attachments/assets/e32e4ff5-d897-48ca-a4d1-1ccf059b9119)
